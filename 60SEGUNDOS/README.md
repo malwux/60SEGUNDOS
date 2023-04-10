@@ -1,4 +1,4 @@
-No me deja subir los archivos porque pesa mucho :(
+No me deja subir los recursos porque pesa mucho :(
 
 Acá dejo el link de los recursos: https://www.mediafire.com/folder/5k9giikuakv2k/recursos
 
